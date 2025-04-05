@@ -1,6 +1,6 @@
 *<p align="center"> " GREETINGS , MY DEAR GUESTS "*
 
-![Untitled241_20250405150321](https://github.com/user-attachments/assets/f4f2dd89-a962-4c6f-8329-087f52776016)
+![Untitled241_20250405214943](https://github.com/user-attachments/assets/c119cf6f-1e0d-4992-b35b-c929c49b1f43)
 
 <p align="center"> ⋇  ⊶⊰ ❣ ⊱⊷  ⋇
  <p align="center">  ▄▀▄▀▄ HE / HIM - MINOR - HALF PINOY ▄▀▄▀▄ 
