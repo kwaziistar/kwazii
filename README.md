@@ -18,8 +18,8 @@
 - I don't roleplay outside of parties/islands
 - IF I have the afk icon, I AM afk and I won't be able to reply (unless you whisp)
 - I am not chronically online thank you
-- If you want to be friends, there are times where I don't play ponytown for a decade, so yay
 - I DO NOT DATE ANYONE AND NEVER WILL 🙏 (i love matching ocs w/ my friends)
+- I am REALLY busy; online A LOT during weekends or whenever I feel like socializing
 
 ![Untitled242_20250405151336](https://github.com/user-attachments/assets/7012347c-1fd4-413f-9c56-139cf7f46768)
 
