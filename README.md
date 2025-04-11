@@ -3,10 +3,10 @@
 ![Untitled241_20250405214943](https://github.com/user-attachments/assets/c119cf6f-1e0d-4992-b35b-c929c49b1f43)
 
 <p align="center"> ⋇  ⊶⊰ ❣ ⊱⊷  ⋇
- <p align="center">  ▄▀▄▀▄ HE / HIM - 13+ - HALF PINOY ▄▀▄▀▄ 
+ <p align="center">  ▄▀▄▀▄ HE / HIM - MINOR - HALF PINOY ▄▀▄▀▄ 
  <p align="center"> | May sound dry, seriously |
  <p align="center"> | VERY socially awkward |
- <p align="center"> | Did I mention I love my online fam? |
+ <p align="center"> | Did I mention my oc has red hair? |
  <p align="center"> @ -- MANONS LOVER REAL
 
 ![Untitled242_20250405151228](https://github.com/user-attachments/assets/406e424e-5031-4bc3-883b-fa694f0c03b1)
@@ -23,5 +23,5 @@
 
 ![Untitled242_20250405151336](https://github.com/user-attachments/assets/7012347c-1fd4-413f-9c56-139cf7f46768)
 
- <p align="center"> BYE PONES! EAT AND DRINK WATER!
+ <p align="center"> im actually a caring guy, pls don't take the byi too far 
 
