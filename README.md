@@ -25,3 +25,4 @@
 
  <p align="center"> im actually a caring guy, pls don't take the byi too far 
 
+ I GLAZE MY OCS MORE THAN I GLAZE THE CHARACTERS I KIN LMAO *(unless something related to any of my interests awakes the beast inside of mee..heh.)*
