@@ -22,8 +22,8 @@
 
 ![Untitled242_20250405151336](https://github.com/user-attachments/assets/7012347c-1fd4-413f-9c56-139cf7f46768)
 
- <p align="center"> im actually a caring guy, pls don't take the byi too far 
+**<p align="center"> !! im actually a caring guy, pls don't take the byi too far**
 
  I GLAZE MY OCS MORE THAN I GLAZE THE CHARACTERS I KIN LMAO *(unless something related to any of my interests awakes the beast inside of mee..heh.)*
 
-- includes } 🍂 { SONIC THE HEDGEHOG • SIG GAMES • HANNIBAL NBC • OCTONAUTS <--- childhood real
+- includes } 🍂 { SONIC THE HEDGEHOG • SIG GAMES • HANNIBAL NBC • OCTONAUTS <--- *childhood real*
