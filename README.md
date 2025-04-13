@@ -15,7 +15,6 @@
 ### I don't make these but life and this game pmo 🫀
 
 - I don't BELIEVE I'm this or that character, I js wanna have fun
-- I don't roleplay outside of parties/islands
 - IF I have the afk icon, I AM afk and I won't be able to reply (unless you whisp)
 - I am not chronically online thank you
 - I DO NOT DATE ANYONE AND NEVER WILL 🙏 (i love matching ocs w/ my friends)
@@ -26,3 +25,5 @@
  <p align="center"> im actually a caring guy, pls don't take the byi too far 
 
  I GLAZE MY OCS MORE THAN I GLAZE THE CHARACTERS I KIN LMAO *(unless something related to any of my interests awakes the beast inside of mee..heh.)*
+
+- includes } 🍂 { SONIC THE HEDGEHOG • SIG GAMES • HANNIBAL NBC • OCTONAUTS <--- childhood real
